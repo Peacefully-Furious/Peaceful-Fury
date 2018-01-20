@@ -8,7 +8,7 @@ For the Appliance, I need to do the following:
 
 1. Remove all to T-Mobile content.
 
-2. Add my new content (not sure what, but it will be something related to the arts and the humanities and designed
+2. Add my new content (not sure what, but it will be something related to the arts and the humanities and designed.
 
 3. Update the tools visual look by editing the CSS file that controls the look and feel of all of the documents and also creating multiple CSS files that can mirror the branding style of different universities. Run these CSS changes by a friend of mine who is a graphic designer/CSS whiz and get her feedback
 
