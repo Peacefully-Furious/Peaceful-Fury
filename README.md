@@ -1,5 +1,5 @@
 # Peaceful-Fury
-#Peacefull Fury
+# Peacefull Fury
 Subtitle options:
 Ecce nos videre
 Nos te video
