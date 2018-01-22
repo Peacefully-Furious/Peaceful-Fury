@@ -1,6 +1,6 @@
   # Peaceful Fury
 
-Sumus te. Tu nobis
+## Sumus te. Tu nobis
 
 We are neural minorities; We are ADHD. We are Aspergers. We are Autistic. We are OCD. We are Tourette's. We are others. We are neuro atypicals in a neurotypical world. We attend your schools and sit next to you at your jobs. We are 4 percent of the world's population.
 
