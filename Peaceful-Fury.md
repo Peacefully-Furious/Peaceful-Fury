@@ -4,6 +4,8 @@
 
 We are neural minorities; We are ADHD. We are Aspergers. We are Autistic. We are OCD. We are Tourette's. We are others. We are neuro atypicals in a neurotypical world. We attend your schools and sit next to you at your jobs. We are 4 percent of the world's population.
 
+dddddd
+
 NEED TO CLARIFY THE DISTINCTION BETWEEN NEURO TYPICALS AND NEURO ATYPICALS
 
 We are neural snowflakes, each more unique than similar. (REWRITE)
