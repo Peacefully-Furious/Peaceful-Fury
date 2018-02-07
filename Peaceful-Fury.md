@@ -2,13 +2,17 @@
 
 ## Sumus te. Tu nobis
 
-I am Peaceful Fury
+Call me Peaceful Fury.
 
-I belong to a neural minority because have ADHD and Bipolar. 
+I am neural atypical because I have ADHD and Bipolar
 
-I am Bipolar.a neuro atypical in a neuro-typical world.  Some are Aspergers, Autistic, OCD, or Tourettes. We are THE OTHERS. We are the same because we all copresent with the disorder of despair.
+Some are Aspergers, Autistic, OCD, or Tourettes.
 
-I attended your schools, I am 4% percent of the world's population.
+We are THE OTHERS. We are the same because we all copresent with the disorder of despair.
+
+
+
+I attended your schools,
 
 (NEED TO CLARIFY THE DISTINCTION BETWEEN NEURO TYPICALS AND NEURO ATYPICALS)
 
