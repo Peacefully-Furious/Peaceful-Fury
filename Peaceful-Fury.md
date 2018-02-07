@@ -2,17 +2,15 @@
 
 ## Sumus te. Tu nobis
 
-We are neural minorities; We are ADHD. We are Aspergers. We are Autistic. We are OCD. We are Tourette's. We are others. We are neuro atypicals in a neurotypical world. We attend your schools and sit next to you at your jobs. We are 4 percent of the world's population.
+I am a neural minority; a neuro atypical in a neuro-typical world. I am ADHD. I am  Aspergers. I am Autistic. I am OCD. I am Tourettes. I am THE OTHER. I attended your schools, I am 4% percent of the world's population.
 
-dddddd
-
-NEED TO CLARIFY THE DISTINCTION BETWEEN NEURO TYPICALS AND NEURO ATYPICALS
+(NEED TO CLARIFY THE DISTINCTION BETWEEN NEURO TYPICALS AND NEURO ATYPICALS)
 
 We are neural snowflakes, each more unique than similar. (REWRITE)
 
-We have been sentenced to inadequate special education programs and then paroled to sit in classrooms with the neuro TYPICALS, who whisper and point at us and say "they are special." Then, we struggle with conventional schooling because we are frustrated with pedagogy that neither stimulates not represents how we learn.
+I was sentenced to special education programs and then paroled to sit in classrooms. The neuro typicals  whisper, point and sneer "they are special." I  struggled with conventional schooling because I was frustrated with pedagogy that not mirror how I learned.
 
-Somehow we persevere, graduate and work. But, the neural atypicals relabel us again: we are not a "fit" in the workforce. We become the creme de-la-creme of underperformers, the "anemic royalty" of Nirvana's song "Pennyroyal Tea."
+I persevered, graduated from college and got a job But the neural typicals relabel me again: I are not a "fit" in the workforce. We become the creme de-la-creme of underperformers, the "anemic royalty" of Nirvana's song "Pennyroyal Tea."
 
 While spending time in the supermax prisons of school and work, we label ourselves. We tatoo the letter "F" for failure on our minds and the letter "S" for shame on our hearts. We wear these scars in jails, in rehab facilities, in mental hospitals, and in divorce courts. We have progressed; where schools once labeled us "special"; now the courts label us "criminals."
 
