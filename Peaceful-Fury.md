@@ -27,29 +27,20 @@ I persevered, graduated from college and got a job. But the neural typicals labe
 
 While spending time in the supermax prisons of school and work, we label ourselves. We tatoo the letter "F" for failure on our minds and the letter "S" for shame on our hearts. We wear these scars in jails, in rehab facilities, in mental hospitals, and in divorce courts. We have progressed; where schools once labeled us "special"; now the courts label us "criminals."
 
-The writer Joan Didion said that "we tell ourselves stories in order to live." By telling our stories, we reacquire purpose to resurrect dignity and joy. We become our own and each other's plastic surgeons of the human psyche; writing is the laser that will excise the scars of shame and of failure from our minds and our hearts.
+The writer Joan Didion said that "we tell ourselves stories in order to live." By telling our stories, We become a plastic of our deformed psyche. Writing is the surgical laser that exciseS (find another word?) the scars of shame AND failure from our minds and our hearts.
 
-The German psychiatrist, Viktor Frankl, after being imprisoned in a Nazi concentration camp, wrote in his book "Mankind's Search for Meaning" that Between stimulus and response, there is a space. In that space is our power to choose our response. In our response lies our growth and our freedom."
-
- ## Here is our response:
-
-> 1. Publish stories about neural atypicals (anonymously,if necessary).
->
-> 2. Discuss ideas sensitive towards neural minorities.
->
-> 3. Add institutions or individuals to the Neural Atypical’s Most Wanted List.
->
-> 4. Laugh, dance, and sing when suffering because of who we are.
->
-> 5. create and publicize musical and visual expressions that honor the joy, the sadnesses and the complexity of neural atypical existence.
-
-We believe, as did some artists imprisoned in the German concentration camps, that the arts help us to cope with, despair, shame, and failure. Art is the ointment that soothes the holocaust done in our minds and the pograms conducted in our hearts.
+Art is the ointment that soothes the holocaust done in our minds and the pograms conducted in our hearts.
 
 Since we are ostracized and belittled in the workforce, we publish anonymously to protect ourselves.
 
 We are honored to be part of this tradition, as seen in the controversial works of Thomas Paine and others. EXPAND AND REWRITE
 
 We wear the Guy Fawkes mask not to blow up Parliament with barrels of dynamite, but to bomb neural bigotry with drones of truth. REWRITE THIS SENTENCE
+
+I
+WE rebuild neural nets. (HOW? CORRECT TERM?)
+
+We are anonymous, hiding and protecting our identity to COEXIST WITH the hostile matrix of school and work that was designed by and for those who practice cognitive genocide.
 
 In the movie The Matrix Reloaded, the character Morpheus addresses his people just before The Machines invade Zion, his city of refugee.
 
@@ -59,15 +50,16 @@ He says:
 
  THIS IS ZION AND WE ARE NOT AFRAID.
 
-We mine our neurons to rebuild neural nets. Our minds are our Zion.
-
-We are anonymous, hiding and protecting our identity to escape the hostile matrix of school and work that was designed by and for those who practice cognitive genocide.
 
 We shed our fear of hostile work environments and pseudo-accommodating schools. We never forget that, despite the neurotypical's efforts to marginalize, fire, flunk, commit,and imprison us:
 
 WE TOO ARE STILL HERE!
 
-So, let our loud, late, lively, and lovely voices speak: We are not afraid. We remember:
+So, let our loud, late, lively, and lovely voices speak:
+
+WE ARE NOT AFRAID.
+
+ITS OUR TIME
 
 WE ARE NOT GOING ANYWHERE.
 
