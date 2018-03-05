@@ -1,4 +1,4 @@
-We adovcate the concepts of Radical Neurodiversity, which is, according to the National Symposium on Neurodiversity, held at Syracuse University:
+We advocate the concepts of Radical Neurodiversity, which is, according to the National Symposium on Neurodiversity, held at Syracuse University:
 
 "... a concept where neurological differences are to be recognized and respected as any other human variation. These differences can include those labeled with Dyspraxia, Dyslexia, Attention Deficit Hyperactivity Disorder, Dyscalculia, Autistic Spectrum, Tourette Syndrome, and others."
 
